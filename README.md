@@ -1,1 +1,1 @@
-# Ba-l-klarla-al-ma
+#Baslıklarla calısma
